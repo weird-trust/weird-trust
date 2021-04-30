@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Robert
+- 👋 Hi, I’m Robert!
 - 👀 I’m interested in analog and digital nature.
 - 🌱 I’m currently learning the piano.
 - 💞️ I’m looking to collaborate on shaping a communism future.
